@@ -1,6 +1,9 @@
 ## Hi there 👋
 
-waruifebrgugrgiuriaeblabvkjaevhejrblr
+waruifebrgugrgiuriaeblabvkjaevhejrblr 
+e, por isso, a Mariana fofinha deveria 
+# mim dar kitkat =0
+além de continuar me chamando de gatinho fofinho após as férias
 <!--
 **00001102162528sp/00001102162528sp** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
